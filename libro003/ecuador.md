@@ -4,7 +4,7 @@ Dos noticias de actualidad de Ecuador extraidas de el diario "El Comercio"
 
 ## Cinco razones por las que el Pico y placa no funciona todo el día en Quito
 
-![PROBLEMA. En el barrio Celi Román denuncian la presencia de libadores los fines de semana, piden control.](/mirador.jpg)
+![PROBLEMA. En el barrio Celi Román denuncian la presencia de libadores los fines de semana, piden control.](/pico.jpg)
 
 
 La posibilidad de ampliar la restricción vehicular del Pico y placa a todo el día se baraja. El alcalde electo, Pabel Muñoz, dijo en una entrevista reciente que  no descarta extender la medida. 
@@ -60,7 +60,7 @@ Además, se debería pensar en una alternativa para aquellas personas que trabaj
 
 ## Guillermo Lasso se enferma y no delega los asuntos más críticos del Ecuador
 
-![AYUDA. Zapotillo declarado en emergencia, pide el apoyo del Gobierno.](/zapotillo.jpg)
+![AYUDA. Zapotillo declarado en emergencia, pide el apoyo del Gobierno.](/Lasso.jpg)
 
 ¿Guillermo Lasso no tiene opción para delegar asuntos urgentes? La última afección de salud del Primer Mandatario resultó en la suspensión de la reunión del Consejo de Seguridad Pública y del Estado (Cosepe). No delegó a ningún funcionario y abrió el debate sobre cómo maneja los problemas que afronta el país. 
 

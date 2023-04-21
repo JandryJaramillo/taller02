@@ -4,7 +4,7 @@ Dos noticias de actualidad Deportivas extraidas de el diario "El Universo"
 
 ## Pepe Auad le ofrece José Pileggi ser ‘refuerzo’ de Emelec, pero le pone una condición
 
-![PROBLEMA. En el barrio Celi Román denuncian la presencia de libadores los fines de semana, piden control.](/mirador.jpg)
+![PROBLEMA. En el barrio Celi Román denuncian la presencia de libadores los fines de semana, piden control.](/D1.jpg)
 
 
 Ante el mal momento que vive Emelec, una grave situación que incluye cuatro derrotas -tres de ellas seguidas- en seis fechas del torneo 2023 de la Liga Pro, estar decimotercero en la tabla de posiciones, sufrir el peor inicio de campeonato en lo que va del siglo 21, refuerzos nacionales y extranjeros que no funcionan, un DT novato que declara que no está preocupado, y la salida de Dixon Arroyo a la MLS sin que el club reciba dinero, el socio azul José Auad hizo en redes sociales una propuesta para ayudar al club.
@@ -32,7 +32,7 @@ En ese breve paso como directivo azul Auad aseveró que había conseguido el aus
 
 ## ¿Cómo se dio la llegada a Ecuador de Javier Burrai? El portero de Barcelona SC revela quién lo convenció para venir
 
-![AYUDA. Zapotillo declarado en emergencia, pide el apoyo del Gobierno.](/zapotillo.jpg)
+![AYUDA. Zapotillo declarado en emergencia, pide el apoyo del Gobierno.](/D2.jpg)
 
 Desde su llegada a Barcelona SC, el portero Javier Burrai se ha convertido en figura indiscutible del cuadro canario e incluso fue el protagonista del título 2020 logrado ante Liga de Quito en el estadio Rodrigo Paz Delgado.
 
